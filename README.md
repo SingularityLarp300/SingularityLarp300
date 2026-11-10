@@ -20,3 +20,5 @@ Including I am also mid/kinda bad at react...meh
 - check out my [guns.lol](https://guns.lol/s7ngularity).
 - moderate a total of 5k+ members.
 
+
+![.](https://komarev.com/ghpvc/?username=Phant0m0567&style=flat)
